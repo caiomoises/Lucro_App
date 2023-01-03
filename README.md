@@ -1,1 +1,0 @@
-# Lucro_App
